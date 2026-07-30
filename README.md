@@ -1,6 +1,6 @@
-# ultimate-fun.-world-game-  
 
+# Ultimate Fun World
 
+50 Games in One
 
-   
-50 game in one
+Game 1: Color King Race
